@@ -6,7 +6,7 @@
 
 **:arrow_double_down: [iOS App Store](https://lets-contact.onelink.me/0dzS/5zggrqgp)**
 
-**:arrow_double_down: [Android.apk](https://lets-contact.onelink.me/0dzS/i809x9ah)**
+**:arrow_double_down: [Android.apk](https://lets-contact.onelink.me/0dzS/hpk3zqkz)**
 
 **:arrow_double_down: [Windows.exe](https://lets-contact.onelink.me/0dzS/rin2hr10)**
 
